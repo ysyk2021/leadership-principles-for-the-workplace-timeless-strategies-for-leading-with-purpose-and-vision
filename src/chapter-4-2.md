@@ -1,5 +1,3 @@
-Using Active Listening to Build Rapport and Understanding
-===================================================================================================================
 
 Effective communication is essential for effective leadership. By using active listening to build rapport and understanding, leaders can promote a positive work environment, enhance trust and engagement, and achieve success.
 

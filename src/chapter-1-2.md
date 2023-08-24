@@ -1,5 +1,3 @@
-Historical Perspectives on Leadership Theory and Practice
-===========================================================================================================
 
 Leadership principles have been studied and practiced for centuries. Over time, leadership theories and practices have evolved, reflecting changing societal and organizational needs. In this chapter, we'll explore the historical perspectives on leadership theory and practice.
 

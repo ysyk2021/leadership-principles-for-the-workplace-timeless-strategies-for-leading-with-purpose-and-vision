@@ -1,5 +1,3 @@
-Chapter 5: Building and Managing High-Performing Teams
-======================================================
 
 Building and managing high-performing teams is essential for achieving organizational goals and objectives. By developing strategies for building and managing high-performing teams, fostering collaboration and innovation, and encouraging diversity and inclusivity, leaders can create a positive work environment, build trust and engagement among team members, and achieve success.
 

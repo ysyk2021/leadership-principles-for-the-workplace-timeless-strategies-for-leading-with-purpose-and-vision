@@ -1,5 +1,3 @@
-Chapter 4: Effective Communication Skills for Leadership
-========================================================
 
 Effective communication skills are essential for leaders who want to achieve their goals and objectives. By developing effective communication skills for leadership, using active listening to build rapport and understanding, and offering constructive feedback and recognition, leaders can create a positive work environment, foster trust and engagement among team members, and achieve success.
 

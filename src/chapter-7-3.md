@@ -1,5 +1,3 @@
-Ensuring Responsible Decision-Making and Actions
-===========================================================================================================
 
 As a leader, it is essential to consider ethics and social responsibility when making decisions and taking actions. Ethical leadership helps build trust with stakeholders and promotes positive social impact. In this chapter, we will discuss strategies for ensuring responsible decision-making and actions.
 

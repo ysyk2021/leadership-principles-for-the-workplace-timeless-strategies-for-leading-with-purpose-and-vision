@@ -1,5 +1,3 @@
-Developing Strategies for Building and Managing High-Performing Teams
-=============================================================================================================================
 
 Building and managing high-performing teams is essential for achieving success in the workplace. By developing effective strategies for team building and management, leaders can create a positive work environment and achieve success.
 

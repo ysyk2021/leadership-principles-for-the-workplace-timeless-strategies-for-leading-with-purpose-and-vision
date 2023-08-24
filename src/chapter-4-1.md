@@ -1,5 +1,3 @@
-Developing Effective Communication Skills for Leadership
-==================================================================================================================
 
 Effective communication is one of the most important skills that a leader can possess. It enables you to connect with people, build trust, and inspire action. In this chapter, we will discuss strategies for developing effective communication skills that will help you become a better leader.
 

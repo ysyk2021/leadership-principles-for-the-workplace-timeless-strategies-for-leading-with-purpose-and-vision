@@ -1,5 +1,3 @@
-Understanding the Ethical Implications of Leadership
-===============================================================================================================
 
 Effective leadership is not just about achieving business goals; it's also about promoting ethics and social responsibility within the organization. Leaders have a responsibility to understand the ethical implications of their decisions and actions and to act with integrity and transparency. In this chapter, we'll explore how leaders can navigate the ethical implications of leadership.
 

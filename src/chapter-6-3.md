@@ -1,5 +1,3 @@
-Communicating Effectively During Times of Change
-===================================================================================================
 
 Leading through change and uncertainty presents challenges for effective communication. By communicating effectively during times of change, leaders can maintain team members' motivation and engagement and promote success in the workplace.
 

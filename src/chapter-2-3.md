@@ -1,5 +1,3 @@
-Aligning Values and Mission with Organizational Goals
-=================================================================================================================
 
 Effective leadership requires a clear vision and strategy that aligns organizational goals with the values and mission of the organization. In this chapter, we'll explore how leaders can develop a vision and strategy that aligns with their organization's values and mission.
 

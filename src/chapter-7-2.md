@@ -1,5 +1,3 @@
-Valuing Diversity and Inclusivity
-============================================================================================
 
 Effective leadership is not just about achieving business goals; it's also about fostering a culture of ethics and social responsibility. One aspect of this is valuing diversity and inclusivity within the workplace. In this chapter, we'll explore how leaders can promote ethics and social responsibility by valuing diversity and inclusivity.
 

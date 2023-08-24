@@ -1,5 +1,3 @@
-Building Resilience and Managing Stress
-==========================================================================================
 
 Leading through change and uncertainty is a critical skill for effective leadership. By building resilience and managing stress, leaders can navigate challenging situations and maintain team members' motivation and engagement.
 

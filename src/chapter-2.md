@@ -1,5 +1,3 @@
-Chapter 2: Developing a Vision and Strategy for Leadership
-==========================================================
 
 Developing a vision and strategy for leadership is essential for achieving long-term success. By developing strategies for creating a vision and strategy for leadership, setting clear goals and objectives, and aligning values and mission with organizational goals, leaders can create a roadmap for success.
 

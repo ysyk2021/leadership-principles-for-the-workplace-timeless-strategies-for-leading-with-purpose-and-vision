@@ -1,5 +1,3 @@
-Encouraging Diversity and Inclusivity
-=============================================================================================
 
 Building and managing high-performing teams is essential to achieving success in the workplace. When you have a diverse and inclusive team, you have access to a broad range of skills, experiences, and perspectives. In this chapter, we will discuss strategies for building and managing high-performing teams that encourage diversity and inclusivity.
 

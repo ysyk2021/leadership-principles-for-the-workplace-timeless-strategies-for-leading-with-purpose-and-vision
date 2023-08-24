@@ -1,5 +1,3 @@
-Chapter 3: Understanding Yourself as a Leader
-=============================================
 
 Understanding yourself as a leader is essential for effective leadership. By recognizing different leadership styles and approaches, identifying personal strengths and areas for development, and building self-awareness and emotional intelligence, leaders can enhance their leadership skills and achieve success.
 

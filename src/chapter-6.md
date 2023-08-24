@@ -1,5 +1,3 @@
-Chapter 6: Leading Through Change and Uncertainty
-=================================================
 
 Leading through change and uncertainty is a critical skill for leaders who want to achieve their goals and objectives. By developing strategies for leading through change and uncertainty, building resilience and managing stress, and communicating effectively during times of change, leaders can navigate challenges and achieve success.
 

@@ -1,5 +1,3 @@
-Building Self-Awareness and Emotional Intelligence
-=================================================================================================
 
 Understanding yourself as a leader is essential to being an effective and successful leader. When you have self-awareness and emotional intelligence, you are better equipped to connect with and inspire your team. In this chapter, we will discuss strategies for building self-awareness and emotional intelligence.
 

@@ -1,5 +1,3 @@
-Offering Constructive Feedback and Recognition
-========================================================================================================
 
 Effective communication is essential for effective leadership. By offering constructive feedback and recognition, leaders can promote a positive work environment, enhance performance and productivity, and achieve success.
 

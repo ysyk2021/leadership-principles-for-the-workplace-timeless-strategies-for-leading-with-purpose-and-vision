@@ -1,4 +1,4 @@
-# Introduction
+
 
 Effective leadership is essential for success in the modern workplace. The ability to inspire and motivate others to work toward a common goal is a critical skill, regardless of the industry, organization, or team.
 

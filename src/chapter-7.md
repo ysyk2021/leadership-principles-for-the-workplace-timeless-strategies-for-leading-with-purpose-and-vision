@@ -1,5 +1,3 @@
-Chapter 7: Ethics and Social Responsibility in Leadership
-=========================================================
 
 Ethics and social responsibility are essential components of effective leadership. By understanding the ethical implications of leadership, valuing diversity and inclusivity, and ensuring responsible decision-making and actions, leaders can create a positive work environment, build trust and engagement among team members, and achieve success.
 
