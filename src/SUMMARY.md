@@ -35,3 +35,4 @@
   - [Seeking out professional development and learning opportunities](chapter-8-3.md)
 - [Conclusion: Mastering Leadership Principles for the Workplace](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)
